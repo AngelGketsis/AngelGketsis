@@ -1,4 +1,4 @@
-# Hi, I’m Angel 👋<br>
+# Hi, I’m Lydia 👋<br>
 
 <br>Creative Developer | AI enthusiast | Full-stack dev-in-training | D&D storyteller 🎲<br>
 <br>I love building smart, human-centered apps and bringing stories to life — whether through code or chaotic D&D campaigns. <br>
